@@ -1,4 +1,3 @@
 # batman-suecia
-Pagina batman
 
-DCCOMICS
+rosa e amarela
